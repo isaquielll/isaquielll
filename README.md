@@ -1,6 +1,6 @@
 - 👋 Hi, I’m HAWK7
-- 👀 I’m interested idiomas
-- 🌱 I’m currently inglês britãnico
+- 👀 I’m interested in idiomas
+- 🌱 I’m currently estudando inglês britãnico
 - 💞️ I’m looking to collaborate on NADA
 - 📫 How to reach me:isaquielreinaldogonsalves@gmail.com
 - 😄 Pronouns: ...
